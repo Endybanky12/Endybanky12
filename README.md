@@ -8,4 +8,5 @@
 Endybanky12/Endybanky12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Www.endybanky@ee.com
+Www.endyeweka@gmail.com
+It is been welcome and te and day.
